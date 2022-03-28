@@ -7,3 +7,8 @@
 ![image](https://user-images.githubusercontent.com/79859389/160435969-009d9111-bc7d-4e01-8c10-9a65edd046f3.png)
 ![image](https://user-images.githubusercontent.com/79859389/160436013-4b236714-a6ff-46e9-bb4b-a39107167210.png)
 ![image](https://user-images.githubusercontent.com/79859389/160436063-07d31a16-55e8-4c7a-b0a4-4f7b1a8ba206.png)
+integrantes do grupo:
+Ariane Teruel
+Gabriela silvério
+Maria Eduarda 
+Mayra Bruno
